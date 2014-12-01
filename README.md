@@ -1,0 +1,2 @@
+Objectivnost
+============
